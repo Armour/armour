@@ -1,3 +1,5 @@
+<img  src="https://github-readme-stats.vercel.app/api?username=armour&show_icons=true&icon_color=0366d6&bg_color=ffffff&hide_title=true" alt="github stats for egoist">
+
 ### Hi I'm Armour, you can also call me AzEndless 😄
 
 [![Instagram](https://img.shields.io/static/v1?label=Instagram&message=%20&logo=Instagram&style=flat-square&logoColor=red)](https://www.instagram.com/azendless/)
