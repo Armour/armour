@@ -10,5 +10,5 @@
 - 📷  趣味で(̶H̶e̶r̶o̶)̶ Photographer (*•̀ㅂ•́)و
 - ❤️  Anime, League of Legend, Cosplay
 - 🇨🇳 🇨🇦 🇺🇸 🇯🇵 🇩🇪  At Munich now 
-- [Bilibili 🍻!!](https://space.bilibili.com/1988495)
+- Bilibili[萌新up主](https://space.bilibili.com/1988495)
 - ☀️  Always Sunshine
